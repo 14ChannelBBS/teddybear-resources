@@ -1,0 +1,2 @@
+# teddybear-resources
+ででぃーべあ！ のリソース。
